@@ -1,1 +1,1 @@
-dmxlc3M6Ly82MGVkYjNiZi03OWY4LTQ2ZTUtYTdiOC0yZDdiN2NjZTEyN2JAZzEwNTI4Lnh5ejo0MjI/ZW5jcnlwdGlvbj1ub25lJnNlY3VyaXR5PXRscyZ0eXBlPXdzJnBhdGg9JTJmOTE1ODVhN2JkNzIzOWIzJTJmIyVlNyU4OSViOSVlNiVhZSU4YSVlNiU5NyViNiVlNiU5YyU5Zgo=
+vless://f653f6b8-9bba-4717-bd72-e2dbd7beb30b@www.14912999178.top:432?encryption=none&security=tls&type=ws&path=%2f9b33b6%2f#www.14912999178.top
